@@ -1,6 +1,20 @@
 # KevinH-example-remote-repo
-This is for the lab4/part1 exercise for mtec1003
+This is for the lab4/part1 exercise for MTEC1003
+
+
+
+Now I has been here -Alejandro
+
+
 
 I was here - Kevin
 
+
 I love Money !!!!!
+
+I was also here 
+
+I was here first - Ashanti
+
+
+
