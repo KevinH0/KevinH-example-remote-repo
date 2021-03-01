@@ -17,11 +17,15 @@ Now I has been here -Alejandro
 I was here - Kevin
 
 
+
+Sup, I'll add some stuff here.  Are you a gamer?
+
 I love Money !!!!!
 
 I was also here 
 
 I was here first - Ashanti
+
 
 
 
